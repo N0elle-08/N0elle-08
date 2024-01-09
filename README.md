@@ -12,4 +12,3 @@
 
 🔍 Actively seeking challenging opportunities to apply my skills in creating real-world solutions.
 
-Let's connect and collaborate on data-driven projects that make a difference!
