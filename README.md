@@ -10,5 +10,4 @@
 
 🎓 Hold Master's in Advanced Computer Science with a focus on Data Science and Master's in Computer Applications.
 
-🔍 Actively seeking challenging opportunities to apply my skills in creating real-world solutions.
 
